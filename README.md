@@ -1,0 +1,2 @@
+# 32c21906-6357-4413-8f3d-d78073b42ba5-hero-1
+Hero section variant 1 for 32c21906-6357-4413-8f3d-d78073b42ba5
